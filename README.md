@@ -1,0 +1,1 @@
+# TextMining_WahyuKhairi_2311531009
